@@ -1,0 +1,1 @@
+# -QRRevision-Tecnica-aspx-patenteYS6189DPVX13
